@@ -1,0 +1,1 @@
+# sklep-second-hand
